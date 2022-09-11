@@ -6,5 +6,5 @@
 - 👯 I’m looking to collaborate on ...everything
 - 🤔 I’m looking for help with ... job networking
 - 📫 How to reach me: ... petrauskas.justas@gmail.com
-- ⚡ Fun fact: ... will be added later
+
 
